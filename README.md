@@ -1,0 +1,1 @@
+# Macdonald-market-segmentation-analysis
